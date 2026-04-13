@@ -2,7 +2,7 @@
 ### Legal Operations Professional · Contract & Compliance Specialist · Paralegal
 
 [![Location](https://img.shields.io/badge/📍_Location-Florida_%7C_Open_to_Remote-1B3A6B?style=flat-square)](https://github.com/kimweatherington1-crypto)
-[![Notary](https://img.shields.io/badge/📋_Credential-Florida_Notary_%7C_Remote_Online_Notary-C9A84C?style=flat-square)](#)
+[![Notary](https://img.shields.io/badge/📋_Credential-Florida_Notary_%7C_Remote_Online_Notary-C9A84C?style=flat-square)](239-464-0844)
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-Connect-0077B5?style=flat-square&logo=linkedin)](https://linkedin.com/in/[kimwrealtor])
 [![Email](https://img.shields.io/badge/Email-Contact_Me-1B3A6B?style=flat-square&logo=gmail)](listit@kimwrealtor])
 
